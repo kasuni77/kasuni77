@@ -1,7 +1,6 @@
 **`Kasuni Ganegoda`**
 <p align="center">
-<img src="![Premium Photo _ Top view of workspace with agenda and laptop](https://github.com/kasuni77/kasuni77/assets/68696656/0716c8c3-e5ae-4ab6-9d83-50eaec8685be)"
- /></a>
+<img src="![Premium Photo _ Top view of workspace with agenda and laptop](https://github.com/kasuni77/kasuni77/assets/68696656/d1fc4650-9651-4393-a4ea-005321f53224)"/></a>
 </p>
 
 𝙃𝙞 𝙩𝙝𝙚𝙧𝙚 👋🏻<br><br>

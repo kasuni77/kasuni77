@@ -1,6 +1,6 @@
 **`Kasuni Ganegoda`**
 <p align="center">
-<iframe src="https://assets.pinterest.com/ext/embed.html?id=788692953485389724" height="330" width="345" frameborder="0" scrolling="no" ></iframe>
+<img src="<iframe src="https://assets.pinterest.com/ext/embed.html?id=788692953485389724" height="330" width="345" frameborder="0" scrolling="no" ></iframe>" />
 </p>
 
 𝙃𝙞 𝙩𝙝𝙚𝙧𝙚 👋🏻<br><br>

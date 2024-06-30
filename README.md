@@ -1,6 +1,7 @@
 **`Kasuni Ganegoda`**
 <p align="center">
-<img src="<iframe src="https://assets.pinterest.com/ext/embed.html?id=788692953485389724" height="330" width="345" frameborder="0" scrolling="no" ></iframe>" />
+<img src="![Premium Photo _ Top view of workspace with agenda and laptop](https://github.com/kasuni77/kasuni77/assets/68696656/8ef9fede-e2ea-4fa4-b450-d058fcd5c149)
+" /></a>
 </p>
 
 𝙃𝙞 𝙩𝙝𝙚𝙧𝙚 👋🏻<br><br>

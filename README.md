@@ -1,17 +1,12 @@
-### Hi there, I'm Kasuni Madhushika👋
+**`Kasuni Ganegoda`**
+<p align="center">
+<img src="" /></a>
+</p>
 
-<!--
-**kasuni77/kasuni77** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- :mortar_board: I’m currently studying at SLIIT ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
-:mortar_board: @SLIIT Graduate👩‍🎓 
+𝙃𝙞 𝙩𝙝𝙚𝙧𝙚 👋🏻<br><br>
+𝘼𝙨 𝙖 𝙂𝙧𝙖𝙙𝙪𝙖𝙩𝙚 𝙤𝙛 𝙎𝙤𝙛𝙩𝙬𝙖𝙧𝙚 𝙀𝙣𝙜𝙞𝙣𝙚𝙚𝙧𝙞𝙣𝙜 𝙛𝙧𝙤𝙢 𝙎𝙇𝙄𝙄𝙏, 👩🏻‍🎓 𝙄 𝙝𝙖𝙫𝙚 𝙖 𝙥𝙖𝙨𝙨𝙞𝙤𝙣 𝙛𝙤𝙧 𝙩𝙚𝙘𝙝𝙣𝙤𝙡𝙤𝙜𝙮 𝙖𝙣𝙙 𝙞𝙣𝙣𝙤𝙫𝙖𝙩𝙞𝙤𝙣.<br><br>
+𝙈𝙮 𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨 𝙡𝙞𝙚 𝙞𝙣 𝙒𝙚𝙗 𝘼𝙥𝙥𝙡𝙞𝙘𝙖𝙩𝙞𝙤𝙣 𝘿𝙚𝙫𝙚𝙡𝙤𝙥𝙢𝙚𝙣𝙩 👩‍💻, 𝙖𝙣𝙙 𝙄 𝙖𝙢 𝙘𝙤𝙣𝙩𝙞𝙣𝙪𝙤𝙪𝙨𝙡𝙮 𝙨𝙩𝙧𝙞𝙫𝙞𝙣𝙜 𝙩𝙤 𝙚𝙭𝙥𝙖𝙣𝙙 𝙢𝙮 𝙨𝙠𝙞𝙡𝙡𝙨 𝙖𝙣𝙙 𝙠𝙣𝙤𝙬𝙡𝙚𝙙𝙜𝙚.<br><br>
+𝘼 𝙦𝙪𝙞𝙘𝙠 𝙡𝙚𝙖𝙧𝙣𝙚𝙧 𝙖𝙣𝙙 𝙙𝙚𝙩𝙖𝙞𝙡-𝙤𝙧𝙞𝙚𝙣𝙩𝙚𝙙, 𝙄 𝙚𝙣𝙟𝙤𝙮 𝙩𝙖𝙘𝙠𝙡𝙞𝙣𝙜 𝙣𝙚𝙬 𝙘𝙝𝙖𝙡𝙡𝙚𝙣𝙜𝙚𝙨 𝙖𝙣𝙙 𝙬𝙤𝙧𝙠𝙞𝙣𝙜 𝙤𝙣 𝙞𝙣𝙣𝙤𝙫𝙖𝙩𝙞𝙫𝙚 𝙥𝙧𝙤𝙟𝙚𝙘𝙩𝙨📍.<br><br>
+𝑰'𝙢 𝙤𝙣 𝙖 𝙟𝙤𝙪𝙧𝙣𝙚𝙮 𝙩𝙤 𝙙𝙚𝙚𝙥𝙚𝙣 𝙢𝙮 𝙪𝙣𝙙𝙚𝙧𝙨𝙩𝙖𝙣𝙙𝙞𝙣𝙜 𝙤𝙛 𝘼𝙧𝙩𝙞𝙛𝙞𝙘𝙞𝙖𝙡 𝙄𝙣𝙩𝙚𝙡𝙡𝙞𝙜𝙚𝙣𝙘𝙚, 𝘾𝙡𝙤𝙪𝙙 𝘼𝙧𝙘𝙝𝙞𝙩𝙚𝙘𝙩𝙪𝙧𝙚, 𝙖𝙣𝙙 𝙏𝙚𝙨𝙩𝙞𝙣𝙜.<br><br>
+𝙀𝙢𝙗𝙧𝙖𝙘𝙞𝙣𝙜 𝙘𝙤𝙣𝙩𝙞𝙣𝙪𝙤𝙪𝙨 𝙡𝙚𝙖𝙧𝙣𝙞𝙣𝙜, 𝙄 𝙝𝙖𝙫𝙚 𝙖 𝙨𝙩𝙧𝙤𝙣𝙜 𝙥𝙖𝙨𝙨𝙞𝙤𝙣 𝙛𝙤𝙧 𝙨𝙝𝙖𝙧𝙞𝙣𝙜 𝙠𝙣𝙤𝙬𝙡𝙚𝙙𝙜𝙚 𝙬𝙞𝙩𝙝 𝙤𝙩𝙝𝙚𝙧𝙨.<br><br>
+𝙄𝙣 𝙢𝙮 𝙛𝙧𝙚𝙚 𝙩𝙞𝙢𝙚, 𝙧𝙚𝙖𝙙𝙞𝙣𝙜 𝙗𝙤𝙤𝙠𝙨, 𝙩𝙧𝙖𝙫𝙚𝙡𝙞𝙣𝙜, 𝙖𝙣𝙙 𝙚𝙭𝙥𝙡𝙤𝙧𝙞𝙣𝙜 𝙣𝙚𝙬 𝙩𝙚𝙘𝙝𝙣𝙤𝙡𝙤𝙜𝙞𝙚𝙨 𝙠𝙚𝙚𝙥 𝙢𝙚 𝙞𝙣𝙨𝙥𝙞𝙧𝙚𝙙.

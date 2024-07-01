@@ -13,10 +13,12 @@
 𝙄𝙣 𝙢𝙮 𝙛𝙧𝙚𝙚 𝙩𝙞𝙢𝙚, 𝙧𝙚𝙖𝙙𝙞𝙣𝙜 𝙗𝙤𝙤𝙠𝙨, 𝙩𝙧𝙖𝙫𝙚𝙡𝙞𝙣𝙜, 𝙖𝙣𝙙 𝙚𝙭𝙥𝙡𝙤𝙧𝙞𝙣𝙜 𝙣𝙚𝙬 𝙩𝙚𝙘𝙝𝙣𝙤𝙡𝙤𝙜𝙞𝙚𝙨 𝙠𝙚𝙚𝙥 𝙢𝙚 𝙞𝙣𝙨𝙥𝙞𝙧𝙚𝙙.<br><br>
 - 📝 𝙄 𝙧𝙚𝙜𝙪𝙡𝙖𝙧𝙡𝙮 𝙬𝙧𝙞𝙩𝙚 𝙖𝙧𝙩𝙞𝙘𝙡𝙚𝙨 𝙤𝙣 [https://medium.com/@kasunimadhushika77](https://medium.com/@kasunimadhushika77)<br>
 - 📫 𝙃𝙤𝙬 𝙩𝙤 𝙧𝙚𝙖𝙘𝙝 𝙢𝙚 **kasunimadhushika77@gmail.com**
+<br>
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://lk.linkedin.com/in/kasuni-madhushika-2741b61b7?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app) [![Medium](https://img.shields.io/badge/Medium-12100E?logo=medium&logoColor=white)](https://kasunimadhushika77.medium.com/)
 
+<br>
 
 # 📊 GitHub Stats:
 ![](https://github-readme-stats.vercel.app/api?username=kasuni77&theme=dark&hide_border=false&include_all_commits=true&count_private=true)<br/>

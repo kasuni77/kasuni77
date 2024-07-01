@@ -15,7 +15,7 @@
 - 📫 𝙃𝙤𝙬 𝙩𝙤 𝙧𝙚𝙖𝙘𝙝 𝙢𝙚 **kasunimadhushika77@gmail.com**
 
 ## 🌐 Socials:
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://lk.linkedin.com/in/kasuni-madhushika-2741b61b7?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)[![Medium](https://img.shields.io/badge/Medium-12100E?logo=medium&logoColor=white)](https://medium.com/@https://medium.com/@kasunimadhushika77) 
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://lk.linkedin.com/in/kasuni-madhushika-2741b61b7?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)[![Medium](https://img.shields.io/badge/Medium-12100E?logo=medium&logoColor=white)]([https://medium.com/@https://medium.com/@kasunimadhushika77](https://kasunimadhushika77.medium.com/)) 
 
 
 # 📊 GitHub Stats:
